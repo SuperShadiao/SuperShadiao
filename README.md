@@ -1,1 +1,1 @@
-<iframe src="//player.bilibili.com/player.html?isOutside=true&aid=112867261024818&bvid=BV1spvwebELi&cid=500001630887484&p=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"></iframe>
+<p align="center"> <a href="https://xiaoshadiao.yqloss.net/xsdb"></p>
