@@ -3,7 +3,7 @@
 \>\>\>\>\> [Bilibili](https://space.bilibili.com/507787788)  ============= [XSD's footprint](https://show.bilibili.com/platform/detail.html?id=93229) =============  [QQG](https://hypixelhelper.pages.dev/qqg) <<<<<
 
 
-我去, 这个沙雕是真的菜啊
+我去, 这个沙雕是真的菜啊 (听说这个菜狗每刷新一次都会变颜色 -->)
 ![awa](https://xiaoshadiao.yqloss.net/randrainbowdog)
 ![09cc1aef2059604f4581c39db11e7914](https://github.com/user-attachments/assets/5f7a1fe2-3707-48cc-bd8e-306142a1fef1) 
 ![95d12b1b6f1855392a90a703a99f06a3](https://github.com/user-attachments/assets/c72de813-9327-499d-8c7d-329535451420)
