@@ -1,6 +1,6 @@
 # Hi, nice to meet you, but im a noob lol
 
-\>\>\>\>\> [Bilibili](https://space.bilibili.com/507787788)    [QQG](https://xiaoshadiao.club/qqg) <<<<<
+\>\>\>\>\> [Bilibili](https://space.bilibili.com/507787788)  ============  [QQG](https://xiaoshadiao.club/qqg) <<<<<
 
 
 我去, 这个沙雕是真的菜啊 (听说这个菜狗每刷新一次都会变颜色 -->)
