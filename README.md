@@ -1,6 +1,6 @@
 # Hi, nice to meet you, but im a noob lol
 
-\>\>\>\>\> [Bilibili](https://space.bilibili.com/507787788)  ============  [QQG](https://xiaoshadiao.club/qqg) <<<<<
+\>\>\>\>\> [Bilibili](https://xiaoshadiao.club/xsdb)  ============  [QQG](https://xiaoshadiao.club/qqg) <<<<<
 
 
 我去, 这个沙雕是真的菜啊 (听说这个菜狗每刷新一次都会变颜色 -->)
@@ -12,6 +12,6 @@
 
 ![f42ff8b20fb00f4a7c6bb4b226d6333b](https://github.com/user-attachments/assets/1fb61054-b8b1-4885-94ce-7c8c506135e9)
 
-" [BlueArchive](https://oiapi.net/?action=doc&id=29), 启动! "
+" [BlueArchive](https://oiapi.net/doc/?id=30), 启动! "
 
 ![image](https://github.com/user-attachments/assets/35e3dbf7-2215-423b-86ac-d50b41d5f6db)
